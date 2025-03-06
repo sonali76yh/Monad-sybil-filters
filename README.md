@@ -1,5 +1,5 @@
 <h1>A Depth research on Monad sybil filters</h1>
-
+Magiceden nft mint & sell try to  catch nft buy in low price & also mint new nfts & sell high price to coollect smartly for monad testnet faucet to doing monad tewstnet & also nft bhi rakho 
 😉😉According to me, maximum 1M-1.5M people can get $MON airdrop, not more than -- (CHECK calculation) 👇
 
 Just imagine, if each wallet receives an average of $500 in an airdrop from Monad.
